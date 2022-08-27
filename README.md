@@ -4,7 +4,7 @@ Lapacho
 Solito en el monte
 Donde el día esconde
 Lumbre de la tierra
-Ceniza de sol.
+Ceniza de sol, y la luna.
 
 Lapacho
 También en mi alma
